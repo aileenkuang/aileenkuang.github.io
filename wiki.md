@@ -6,7 +6,7 @@ From Dodge, ["Food’s contributions to gentrification are focus of new book co-
 
 ## Gentrification in the Chinatown-International District
 
-![chinatown.png](https://dynamic-media-cdn.tripadvisor.com/media/photo-o/14/7a/c5/b5/ingresso.jpg?w=1200&h=-1&s=1)
+![chinatown.png](https://www.theurbanist.org/wp-content/uploads/2022/06/china-gat.png)
 
 Seattle's **Chinatown-International District** (aka Chinatown or the CID) -- a neighborhood that is largely populated by low-income, elderly Asian residents -- has  been named one of the eleven most endangered historic areas in the United States by the National Trust for Historic Preservation (Clarridge). In recent years, there has been an influx of newer businesses and housing developments in the area -- for example, [KODA Condominiums built a high-rise luxury apartment building in the neighborhood in 2020](https://www.ownkoda.com/), with condo prices ranging from hundreds of thousands of dollars to 1.4 million (Tanabe). 
 
