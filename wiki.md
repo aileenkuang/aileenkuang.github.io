@@ -7,6 +7,7 @@ From Dodge, ["Food’s contributions to gentrification are focus of new book co-
 ## Gentrification in the Chinatown-International District
 
 ![chinatown.png](https://www.theurbanist.org/wp-content/uploads/2022/06/china-gat.png)
+From Kuo, ["Watching Chinatown’s Gentrifying/Generational Change."](https://www.theurbanist.org/2022/06/14/kuo-%E9%83%AD-watching-chinatowns-gentrifying-generational-change/)
 
 Seattle's **Chinatown-International District** (aka Chinatown or the CID) -- a neighborhood that is largely populated by low-income, elderly Asian residents -- has  been named one of the eleven most endangered historic areas in the United States by the National Trust for Historic Preservation (Clarridge). In recent years, there has been an influx of newer businesses and housing developments in the area -- for example, [KODA Condominiums built a high-rise luxury apartment building in the neighborhood in 2020](https://www.ownkoda.com/), with condo prices ranging from hundreds of thousands of dollars to 1.4 million (Tanabe). 
 
@@ -25,6 +26,7 @@ Here are some resources to check out about gentrification in Chinatown:
 1. Clarridge, Christine. ["Seattle's Chinatown among most endangered historic places."](https://www.axios.com/local/seattle/2023/05/10/seattle-chinatown-historic-endangered-place)
 2. Dodge, Jeff. ["Food’s contributions to gentrification are focus of new book co-edited by CSU prof."](https://libarts.source.colostate.edu/foods-contributions-to-gentrification-are-focus-of-new-book-co-edited-by-csu-prof/)
 3. Fogel, Rebecca. ["Changing Foodscapes in Seattle."](https://urban.uw.edu/news/gentrification-and-changing-foodscapes-in-seattle/)
+4. Kuo, Shaun. ["Watching Chinatown’s Gentrifying/Generational Change."](https://www.theurbanist.org/2022/06/14/kuo-%E9%83%AD-watching-chinatowns-gentrifying-generational-change/)
 4. Ng, Assunta. ["Community battles over future of Bush Garden building."](https://nwasianweekly.com/2019/06/community-battles-over-future-of-bush-garden-building/)
 5. Tanabe, Madelyn. ["OPINION: Sticks & Stones Won’t Break Luxury Homes, but the CID Will Keep Protesting Them."](https://southseattleemerald.com/2022/04/05/opinion-sticks-stones-wont-break-luxury-homes-but-the-cid-will-keep-protesting-them/)
 6. Reed, Zane. ["Seattle Chinatown residents protest light rail project that could displace businesses."](https://yaledailynews.com/sjp/2022/08/24/seattle-chinatown-residents-protest-light-rail-project-that-could-displace-businesses/)
