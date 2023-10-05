@@ -12,7 +12,7 @@ From Kuo, ["Watching Chinatown’s Gentrifying/Generational Change."](https://ww
 Seattle's **Chinatown-International District** (aka Chinatown or the CID) -- a neighborhood that is largely populated by low-income, elderly Asian residents -- has  been named one of the eleven most endangered historic areas in the United States by the National Trust for Historic Preservation (Clarridge). In recent years, there has been an influx of newer businesses and housing developments in the area -- for example, [KODA Condominiums built a high-rise luxury apartment building in the neighborhood in 2020](https://www.ownkoda.com/), with condo prices ranging from hundreds of thousands of dollars to 1.4 million (Tanabe). 
 
 ### Community Responses
-Community members in the Chinatown-International District have resisted the gentrification and displacement occurring in their neighborhood. In 2019, the CID Coalition organized protests against a development planned for the site of  Bush Garden, a Japanese restaurant and karaoke bar (). Furthermore, in 2022,  residents protested against a light rail expansion project running through Chinatown that could displace at least 27 businesses (Reed).
+Community members in the Chinatown-International District have resisted the gentrification and displacement occurring in their neighborhood. In 2019, the CID Coalition organized protests against a development planned for the site of  Bush Garden, a Japanese restaurant and karaoke bar (Assunta). Furthermore, in 2022,  residents protested against a light rail expansion project running through Chinatown that could displace at least 27 businesses (Reed).
 
 ## Resources
 Here are some resources to check out about gentrification in Chinatown:
